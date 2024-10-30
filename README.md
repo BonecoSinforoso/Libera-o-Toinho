@@ -1,4 +1,4 @@
-# Libera-o-Toinho 👌
+# Libera o Toinho 👌
 
 en -> Repository for you to get THE PRECIOUS!
 
